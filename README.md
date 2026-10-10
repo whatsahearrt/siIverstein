@@ -31,10 +31,15 @@ Wip. finnish tomorrow
 
 ${\space}$
 
-${\color{#1b2139} atab \space so \space dry \space some1 \space pls \space sign}$ ${\color{#e0b577}}$ [it](https://kiribaku.atabook.org/)
-${\space}$
+<img width="100" height="190" src="https://github.com/user-attachments/assets/1f45d438-feb6-4cf5-825c-f07a14d65b73" alt="image" />
 
-${\color{#e0b577} \space}$
+<img width="150" height="150" src="https://github.com/user-attachments/assets/50ab8fc0-0979-4220-b414-a247867daed4" alt="image" />
+
+<img width="90" height="200" src="https://github.com/user-attachments/assets/6d2d3103-7cee-4ed0-b6e0-3480d97a9700" alt="image" />
+
+
+${\space}$
+${\space}$
 
 ${\color{#3f0732} Thankchuu<3 }$
 
